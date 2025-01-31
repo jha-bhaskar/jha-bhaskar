@@ -3,6 +3,6 @@
 📧 Reach me at [mail](mailto:bhaskarjha.info@gmail.com) and connect with me on [Social link](https://beacons.ai/bhaxkar). 
 
 # Please checkout my new projects on [my new github profile](https://github.com/bhaxkar0/) 
-# Ne github link https://github.com/bhaxkar0/
+# New github link https://github.com/bhaxkar0/
 
 
